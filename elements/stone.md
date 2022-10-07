@@ -1,0 +1,6 @@
+---
+description: '*dramatic thud*'
+---
+
+# 🪨 Stone
+
